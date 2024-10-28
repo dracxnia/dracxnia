@@ -1,5 +1,5 @@
 ‎
-✚𓈒 ᴗ)  miyu ﹑ **d**raconia fan  e
+✚𓈒 ᴗ)  miyu ﹑ commonly known as **k**yomi or kyo  e
 
 ❛ e  any prns ` ask 
 
