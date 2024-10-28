@@ -1,9 +1,9 @@
 ‎
-_ _ ✚𓈒 ᴗ)  miyu ﹑ **d**raconia fan  e
+✚𓈒 ᴗ)  miyu ﹑ **d**raconia fan  e
 
-_ _ ❛ e  any prns ` ask 
+❛ e  any prns ` ask 
 
-_ _ " __i__ love you to **death** 𑣿ྀིྀ "
+" __i__ love you to **death** 𑣿ྀིྀ "
 
 <!---
 dracxnia/dracxnia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
